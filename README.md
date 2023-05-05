@@ -1,2 +1,4 @@
-#yibajayigalleryartistryandbusinessauditory2348028631039
-Art and entertainment product/ service Business Consultant
+fb.me/yagabajobvacancynetwork2347036952518 
+Enterprenuer 
+A job link avenue. 
+
