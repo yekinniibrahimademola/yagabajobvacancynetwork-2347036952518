@@ -1,4 +1,4 @@
 fb.me/yagabajobvacancynetwork2347036952518 
-Enterprenuer 
+Entrepreneur 
 A job link avenue. 
 
